@@ -1,0 +1,1 @@
+# ProjektParadygmatyW67652
